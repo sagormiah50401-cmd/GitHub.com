@@ -1,1 +1,1 @@
-aviator prediction signal bot# GitHub.com
+signal bot# GitHub.com
